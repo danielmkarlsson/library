@@ -1,4 +1,5 @@
-Interview: Rashad Becker
+Interview: Rashad Becker  
+
 The avant-garde composer details a life as a mastering engineer and musician, wrapped up in precision and radical listening
 
 In the European experimental electronic scene, Rashad Becker’s name is synonymous with sonic brilliance – a mastering engineer at Basic Channel’s Dubplates & Mastering studio, he has technical credits on over 1,600 of the most renowned underground techno, dub and house records of the past decade. His incisive attention to detail and expansive mindset when it comes to the capturing and manipulation of sonics has seen him work his magic for artists such as Burnt Friedman, Ryoji Ikeda, Richie Hawtin , Ricardo Villalobos, Roman Flügel and Jan Jelinek, among hundreds of others.
