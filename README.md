@@ -1,2 +1,2 @@
 # library
-ReadYouForGreatGood
+Read you for great good (or peril)
